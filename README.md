@@ -342,11 +342,11 @@ I'm particularly interested in environments where I can:
 
 I'm always interested in discussing **software, AI, data, cybersecurity, technology and interesting ideas that could become real products.**
 
-📧 **Email:** [your-email@example.com](mailto:your-email@example.com)
+📧 **Email:** [honoriad17@gmail.com](mailto:honoriad17@gmail.com)
 
-💼 **LinkedIn:** [Connect with me](#)
+💼 **LinkedIn:** [Connect with me](www.linkedin.com/in/kalivoid2047)
 
-🌐 **Portfolio:** [Visit my portfolio](#)
+🌐 **Portfolio:** [Visit my portfolio](https://bmanuerdeguru-29.github.io/myself/)
 
 🐙 **GitHub:** [Explore my repositories](#)
 
